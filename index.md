@@ -1,7 +1,7 @@
 Welcome
 
 你可能感兴趣的
-*   [网页聊天室](https://arcxingye.github.io/utu.html?url=https://chat.getloli.com/room/@aut520)
+*   [网页聊天室](https://z.aut520.tk/n/utu.html?url=https://chat.getloli.com/room/@aut520)
 *   [rickroll二维码获取](https://z.aut520.tk/n/rr/qrcode)
 
 相关主页
