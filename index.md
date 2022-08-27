@@ -1,25 +1,11 @@
 Welcome
 
 你可能感兴趣的
-*   [Q群475269005](https://qm.qq.com/cgi-bin/qm/qr?k=49dp2UcgAJ2Lt0bnDPHljlDPvwYYgJxe&jump_from=webapi)
-*   [TP回小游戏](https://xingye.me/game/new/index.php)
-*   [网页聊天室](https://arcxingye.github.io/utu.html?url=https://chat.getloli.com/room/@xingye)
-*   [amemei的黄油](https://amemei.github.io/utu.html?url=https://5e.fit/amemei) (Password:114514)
-*   [rickroll二维码获取](https://arcxingye.github.io/rr/qrcode)
-*   [短链/页面/二维码生成](https://5e.fit/)
-
-不感兴趣的
-*   [adult](https://bonepa.com/9285d94ecb/7b15e6e39b/?placementName=default)
-*   [non-adult](https://qoaaa.com/11de4be8d1/624bff92cd/?placementName=default)
+*   [网页聊天室](https://arcxingye.github.io/utu.html?url=https://chat.getloli.com/room/@aut520)
+*   [rickroll二维码获取](https://z.aut520.tk/n/rr/qrcode)
 
 相关主页
-*   [Github](https://github.com/arcxingye)
-*   [个人博客](https://xingye.me/)
-*   [bilibili](https://space.bilibili.com/3853579) 点个关注谢谢
-
-其它联系
-*   [Line群](https://line.me/R/ti/g/4aiPvAqIm3)
-*   [Telegram群](https://t.me/+tCqug8nQlXthZTZl)
+*   [个人博客](https://aut520.tk/)
 
 声明：
 1. 本人不参与网页聊天，出现的都是冒充
